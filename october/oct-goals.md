@@ -5,8 +5,7 @@ Goal 2: My second goal is to plan all the meetups that I currently access to I t
 
 Goal 3: Work dilligently on all of the soft skills work. Keep my mind focused and complete the drills by EoD. If this requires work after the mentor night, do it. Have all of these drills understood, notes taken and accomplished. This includes updating previous drills if need be.
 
-Refection on goals for the day:
-I did not accomplish these. Paired with some super unfortunate luck by way of deleting my user and computer and losing everything I was overwhelmed and upset and needed to disengage. I need to re-do these goals for Friday 10/20. 
+
 
 
 SMART for 10/20  Today I want to accomplish a few things: 
