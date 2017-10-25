@@ -1,2 +1,0 @@
-Refection on goals for the day: Oct 10/19
-I did not accomplish these. The major thing that did not go well was everything, but what did go well I think is how I tried to handle it and handle myself.  Paired with some super unfortunate luck by way of deleting my user and computer and losing everything I was overwhelmed and upset and needed to disengage. I need to re-do these goals for Friday 10/20. I did immediately go into solve mode and have my weekend structured around figuring it all out and ensuring I can start with a clean slate and ready on Monday. 
